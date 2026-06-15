@@ -1,2 +1,2 @@
-# sultaansidharthvijayan
-Everything about me - Sidharth Vijayan aka Sultaan
+
+Everything about me - Sidharth Vijayan 
